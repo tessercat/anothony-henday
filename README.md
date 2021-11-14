@@ -1,4 +1,5 @@
-From the transactions of the Royal Soceiety of Canada,
+From
+_The Transactions of the Royal Society of Canada_,
 Third series, 1907-1908, Volume 1, Section II.
 
 V. York Factory to the Blackfeet Country.

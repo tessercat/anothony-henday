@@ -1,0 +1,23 @@
+---
+title:
+- type: main
+  text: York Factory to the Blackfeet Country
+- type: subtitle
+  text: The Journal of Anthony Hendry, 1754-55
+- type: collection
+  text: Transactions of the Royal Society of Canada
+- type: edition
+  text: Volume I, Section II, Part V
+- type: extended
+  text: The Royal Society of Canada, 1908
+creator:
+- role: author
+  text: Anthony Hendry
+- role: editor
+  text: Lawrence J. Burpee
+- role: transcriber
+  text: Peter Christensen
+rights: © 2021 Peter Christensen CC BY-NC-SA 4.0
+ibooks:
+  version: 0.0.1
+...

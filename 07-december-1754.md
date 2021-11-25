@@ -32,14 +32,14 @@ December 18. Wednesday. Made 7 pairs of Snow-Shoes, there being no Birch the way
 
 December 19. Thursday. Travelled 5 Miles East: Level land, no woods: killed one Buffalo.
 
-December 20. Friday. Travelled 8 Miles E.N.E. Land as yeesterday: Saw plenty of Wolves, Moose and Waskesew.
+December 20. Friday. Travelled 8 Miles E.N.E. Land as yesterday: Saw plenty of Wolves, Moose and Waskesew.
 
 December 21. Saturday. Travelled none: killed 2 Beaver & one Waskesew.
 
 December 22. Sunday. Travelled none: Snowed all day, killed 2 Beaver.
 
 December 23. Monday. Travelled nine miles E.b.N. Crossed a branch of the Waskesew River:[^december-1754-2] In the Evening I wounded a Buffalo.
-_
+
 [^december-1754-2]: Knee Hills Creek.
 
 December 24. Tuesday. Travelled none: I found my Buffalo lying dead a small distance from our tent. On rising ground I had an extensive view of the Muscuty country which will be the last this trip inland.
@@ -48,7 +48,7 @@ December 25. Wednesday. Killed 2 Beaver. We have a frost in the night & partly g
 
 December 26 & 27. Thursday & Friday. Killed 2 Waskesew and 2 Moose: I set a Wolf-Hap. I asked the Natives why they did not Hap Wolves; they made Answer that the Archithinue Natives would kill them, if they trapped in their country: I then asked them when & where they were to get the Wolves &c, to carry down in the Spring. They made no answer; but laughed one to another.
 
-December 28. Saturday. Frost & snow & very cold weather: I travelled 5 Miles N.E.b.N. Level land, & narrow ledges of poplar, Alder & trees. got a Wolf in my Hap, & set 2 more; the Wolves are numerous. An Indian told me that my tent-mates were angry with me last night for speaking so much concerning Happing, & advised me to say no more about it, for they would get more Wolves, Beaver &c. from the Archithinue Natives in the spring, than they can carry.
+December 28. Saturday. Frost & snow & very cold weather: I travelled 5 Miles N.E.b.N. Level land, & narrow ledges of poplar, Alder & trees; got a Wolf in my Hap, & set 2 more; the Wolves are numerous. An Indian told me that my tent-mates were angry with me last night for speaking so much concerning Happing, & advised me to say no more about it, for they would get more Wolves, Beaver &c. from the Archithinue Natives in the spring, than they can carry.
 
 December 29. Sunday. Travelled none; got two Wolves from my Haps: Indians killed 2 Moose.
 

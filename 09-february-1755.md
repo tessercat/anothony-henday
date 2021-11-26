@@ -14,7 +14,7 @@ February 4. Tuesday. Travelled 4 Miles North to a branch of Waskesew[^february-1
 
 [^february-1755-3]: Three Hills Creek.
 
-February 5 to 9. Wednesday, Friday, Saturday & Sunday. All hands trapping foxes. I walked in Snow-shoos for the first time this winter. In the Evening Smoked & feasted with the French Leader.
+February 5 to 9. Wednesday, Friday, Saturday & Sunday. All hands trapping foxes. I walked in Snow-shoes for the first time this winter. In the Evening Smoked & feasted with the French Leader.
 
 February 10. Monday. Travelled 4 Miles N.W. Level land tall woods; Spoke with 4 Indian men who told us that the far distant Archithinue Natives had killed 30 of the nigh ones & 7 of our Indians.
 
